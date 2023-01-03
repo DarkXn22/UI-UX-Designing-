@@ -1,1 +1,1 @@
-# UI-UX-Designing-
+# UI/UX Designing
